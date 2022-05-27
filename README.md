@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @manueldecicco99
 - 🌱 I’m currently learning ... everithing and nothing
-- 📫 email: manu.decicco99@gmail.com
+- 📫 email: manuel.decicco99@gmail.com
